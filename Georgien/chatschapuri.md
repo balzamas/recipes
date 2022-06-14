@@ -26,41 +26,41 @@ Arbeitszeit 1 Stunde 30 Minuten
 ### Anleitungen
 #### Teig
 
-    Mehl in Schüssel geben
+Mehl in Schüssel geben
 
-    1/2 Becher Creme Fraiche und 1 Ei dazu geben
+1/2 Becher Creme Fraiche und 1 Ei dazu geben
 
-    kleines Würfelchen Butter und Prise Salz dazu geben
+kleines Würfelchen Butter und Prise Salz dazu geben
 
-    Hefe und Wasser dazu geben
+Hefe und Wasser dazu geben
 
-    Gut kneten bis der Teig geschmeidig ist
+Gut kneten bis der Teig geschmeidig ist
 
-    Mit feuchte, sauberen Tuch abdecken und gehen lassen (ca. 30 Minuten)
+Mit feuchte, sauberen Tuch abdecken und gehen lassen (ca. 30 Minuten)
 
 #### Füllung
 
-    Käse in eine Schüssel krümmeln
+Käse in eine Schüssel krümmeln
 
-    Kräuter fein hacken und dazu geben
+Kräuter fein hacken und dazu geben
 
-    Ei, Creme Fraiche, Chümi, Adschika, Gewürze (Pfeffer Paprika) ebenfalls reinwerfen
+Ei, Creme Fraiche, Chümi, Adschika, Gewürze (Pfeffer Paprika) ebenfalls reinwerfen
 
-    Alles gut durchkneten
+Alles gut durchkneten
 
 #### Zusammem setzen und braten
 
-    Teig auswallen (normalerweise drei Durchgänge)
+Teig auswallen (normalerweise drei Durchgänge)
 
-    Mit Löffel Käsehäufchen auf den Teig legen, rundherum mit Messer Kreis schneiden und den Käse "zufalten"
+Mit Löffel Käsehäufchen auf den Teig legen, rundherum mit Messer Kreis schneiden und den Käse "zufalten"
 
-    Ziel: alles ist gut verschlossen! 
+Ziel: alles ist gut verschlossen! 
 
-    Die Chatschapuris in Öl oder Kochbutter braten (Bratpfanne)
+Die Chatschapuris in Öl oder Kochbutter braten (Bratpfanne)
 
-    Vorsichtig wenden! Am besten die Seite mit den Verschlussstellen zuerst anbraten.
+Vorsichtig wenden! Am besten die Seite mit den Verschlussstellen zuerst anbraten.
 
-    Wenn sie sich ein bisschen aufblähen dann sind sie gut.
+Wenn sie sich ein bisschen aufblähen dann sind sie gut.
 
 ### Rezept-Anmerkungen
 

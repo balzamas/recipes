@@ -22,14 +22,14 @@ Portionen: 4 Personen
 
 ### Anleitung
 
-    Kartoffeln raffeln
+Kartoffeln raffeln
 
-    Zwieben schneiden
+Zwieben schneiden
 
-    Dill schneiden
+Dill schneiden
 
-    Alles Zutaten zu einer Masse zermantschen
+Alles Zutaten zu einer Masse zermantschen
 
-    Kleine Plätzchen in Bratpfanne/Öl braten bis sie goldbraun sind
+Kleine Plätzchen in Bratpfanne/Öl braten bis sie goldbraun sind
 
-    Mit Crème Fraîche/Smetana oder Kaviar servieren
+Mit Crème Fraîche/Smetana oder Kaviar servieren

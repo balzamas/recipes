@@ -23,21 +23,21 @@ Portionen: 4 Personen
 
 ### Anleitung
 
-    Knoblauch und Zwiebel zerhacken
+Knoblauch und Zwiebel zerhacken
 
-    Tofu in Würfel schneiden
+Tofu in Würfel schneiden
 
-    Rüebli in Stiftchen schneiden
+Rüebli in Stiftchen schneiden
 
-    Öl erhitzen, Zwiebeln, Knoblauch und Tofu anbraten (ca. 5 Minuten)
+Öl erhitzen, Zwiebeln, Knoblauch und Tofu anbraten (ca. 5 Minuten)
 
-    Tasse Bouillon und die Rüebli hinzufügen, bei milder Hitze 30 Minuten dünsten
+Tasse Bouillon und die Rüebli hinzufügen, bei milder Hitze 30 Minuten dünsten
 
-    Reis hinzugeben und 5 Minuten mitdünsten
+Reis hinzugeben und 5 Minuten mitdünsten
 
-    Restliche Bouillon hinzufügen und fertig garen bis der Reis gut ist. 
+Restliche Bouillon hinzufügen und fertig garen bis der Reis gut ist. 
 
-    Würzen mit Pfeffer, Paprika, Kurkuma, Kräuter hinzufügen und abschmecken
+Würzen mit Pfeffer, Paprika, Kurkuma, Kräuter hinzufügen und abschmecken
 
 ### Rezept-Anmerkungen
 

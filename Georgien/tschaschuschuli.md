@@ -18,11 +18,11 @@ Portionen: 4 Personen
 
 ### Anleitung
 
-    Fleisch, Knoblauch und Zwiebeln in Butter anbraten, 300ml Wasser dazu geben, weiter braten bei mittlerer Temperatur.
+Fleisch, Knoblauch und Zwiebeln in Butter anbraten, 300ml Wasser dazu geben, weiter braten bei mittlerer Temperatur.
 
-    Wenn Flüssigkeit gut gefärbt ist Tomatenpast, Tomaten, Weisswein dazu geben. 
+Wenn Flüssigkeit gut gefärbt ist Tomatenpast, Tomaten, Weisswein dazu geben. 
 
-    Bei niedriger Temperatur Köcheln lassen (ca. 40 min), wärhenddessen würzen
+Bei niedriger Temperatur Köcheln lassen (ca. 40 min), wärhenddessen würzen
 
-    Zerhackten Koriander dazu geben, ziehen lassen, z.B. mit Reis und Chatschapuri servieren. 
+Zerhackten Koriander dazu geben, ziehen lassen, z.B. mit Reis und Chatschapuri servieren. 
 

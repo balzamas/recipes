@@ -25,15 +25,15 @@ Arbeitszeit 1 Stunde
 
 ### Anleitung
 
-    Geflügel schnetzeln und ohne Öl bei niederiger Temperatur andünsten
+Geflügel schnetzeln und ohne Öl bei niederiger Temperatur andünsten
 
-    Temperatur erhöhen und ein bisschen Wasser hinzugeben. Der entstehende Saft abgiessen in ein Töpfchen. Leicht goldbraun anbraten (ca. 10 - 15 min).
+Temperatur erhöhen und ein bisschen Wasser hinzugeben. Der entstehende Saft abgiessen in ein Töpfchen. Leicht goldbraun anbraten (ca. 10 - 15 min).
 
-    Zwiebeln in Halbringe schneiden und im Butter anbraten (goldgelb). Mit Flüssigkeit aus Hühnertopf ablöschen.
+Zwiebeln in Halbringe schneiden und im Butter anbraten (goldgelb). Mit Flüssigkeit aus Hühnertopf ablöschen.
 
-    Huhn, Zwiebelm, Tomaten und Lorbeer-Blatt in einen Topf, 30 Minuten abgedeckt schmoren lassen.
+Huhn, Zwiebelm, Tomaten und Lorbeer-Blatt in einen Topf, 30 Minuten abgedeckt schmoren lassen.
 
-    Kräuter, Gewürze hinzufügen, nochmals ziehen lassen (5 Min).
+Kräuter, Gewürze hinzufügen, nochmals ziehen lassen (5 Min).
 
-    Mit Reis oder Kartoffeln oder Brot servieren. Pasta geht auch.
+Mit Reis oder Kartoffeln oder Brot servieren. Pasta geht auch.
 
