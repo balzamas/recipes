@@ -2,6 +2,8 @@
 
 Hühnersauce mit Tomaten
 
+[Twitter](https://twitter.com/BergerWthur/status/1484957168310923277) :thread:
+
 Das beste Gericht der Welt
 
 Vorbereitungszeit 10 Minuten	

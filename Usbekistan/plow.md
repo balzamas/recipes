@@ -8,6 +8,8 @@ Arbeitszeit 1 Stunde 10 Minuten
 
 Portionen: 4 Personen
 
+[Twitter](https://twitter.com/BergerWthur/status/1491118584751624194) :thread:
+
 ### Zutaten
 
     500 gr Tofu 1x Tofu Rosso, 1x Tofu geräuchert

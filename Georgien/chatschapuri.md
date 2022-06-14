@@ -2,6 +2,8 @@
 
 ![img.png](images/chatschapuri.png)
 
+[Twitter](https://twitter.com/BergerWthur/status/1489655439939809282) :thread:
+
 Vorbereitungszeit 1 Stunde	
 
 Zubereitungszeit 30 Minuten	

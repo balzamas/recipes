@@ -2,6 +2,8 @@
 
 Holy Nusspaste
 
+[Twitter](https://twitter.com/BergerWthur/status/1523239771371630592) :thread:
+
 Portionen: 4 Personen
 
 ### Zutaten
