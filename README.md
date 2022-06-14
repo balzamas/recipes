@@ -16,7 +16,7 @@ Meine persönliche Rezepte-Sammlung.
 
 ## Aserbaidschan :azerbaijan:
 
-[Chartscho](Aserbaidschan/gijma.md) :cut_of_meat:
+[Gijma Changal](Aserbaidschan/gijma.md) :cut_of_meat:
 
 ## Usbekistan :uzbekistan:
 

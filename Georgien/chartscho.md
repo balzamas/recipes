@@ -2,7 +2,7 @@
 
 Holy Nusspaste
 
-[Twitter](https://twitter.com/BergerWthur/status/1523239771371630592) :thread:
+[Twitter](https://twitter.com/BergerWthur/status/1522882447305756673) :thread:
 
 Portionen: 4 Personen
 
