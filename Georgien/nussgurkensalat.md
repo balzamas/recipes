@@ -2,7 +2,7 @@
 
 Keine Ahnung wie das Ding richtig heisst.
 
-Zutaten
+### Zutaten
 
     3 Tomaten
     3 mittelgrosse Gurken
@@ -11,7 +11,7 @@ Zutaten
     100 gr Walnüsse
     Essig, Salz, Paprika, Pfeffer
 
-Anleitungen
+### Anleitung
 
 Gemüse würfeln, Zwiebel in Halbringe schneiden, Koriander und Peterli fein schneiden.
 

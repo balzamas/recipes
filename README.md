@@ -22,6 +22,10 @@ Meine persönliche Rezepte-Sammlung.
 
 [Vegi-Plow](Usebekistan/plow.md)
 
+## Iran :iran:
+
+[Chorescht-e-Bademjan](Iran/choreschtbademjan.md)
+
 ## Belarus :belarus:
 
 [Draniki](Belarus/draniki.md)
