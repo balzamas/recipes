@@ -1,2 +1,1 @@
-# recipes
-Rezepte
+# Rezepte
