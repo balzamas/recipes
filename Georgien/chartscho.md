@@ -19,13 +19,23 @@ Portionen: 4 Personen
 
 ### Anleitung
 
-Fleisch in Wasser auf kleiner Stufe kochen, Schaum immer wieder abschöpfen, bis Fleisch zart ist (Wasser 2 Finger über Fleisch), ca. 1 bis 2 Stunden
+Fleisch in Wasser auf kleiner Stufe kochen (Wasser 2 Finger über Fleisch).
+
+Schaum immer wieder abschöpfen, bis Fleisch zart ist, ca. 1 bis 2 Stunden
 
 Zwiebeln, Korianderstiele, Walnusskerne, Adjika und Schabzigerklee pürieren mit Mixer.
 
-Von Rinderbrühe etwa Wasserfett abschöpfen, mit Tomatenmark zusammen aufkochen (ca. 1,5 EL), die Zwiebel-Nuss paste darin mit kleiner Flamme 15 min kochen, viel umrühren. Schauen dass es feucht bleibt, sonst nochmals Brühe dazu geben.
+Von Rinderbrühe etwa Wasserfett abschöpfen, mit Tomatenmark zusammen aufkochen (ca. 1,5 EL).
 
-Fleisch aus der Brühe nehmen, Brühe auf 400ml einkochen. Fleisch, Paste, Tkemali und Pelati in Topf werfen, abschmecken mit Salz, Pfeffer, Knoblauch, nochmals köcheln lassen.
+Die Zwiebel-Nuss-Paste darin mit kleiner Flamme 15 min kochen, viel umrühren. 
+
+Schauen dass es feucht bleibt, sonst nochmals Brühe dazu geben.
+
+Fleisch aus der Brühe nehmen, Brühe auf 400ml einkochen. 
+
+Fleisch, Paste, Tkemali und Pelati in Topf werfen, abschmecken mit Salz, Pfeffer, Knoblauch.
+
+Nochmals köcheln lassen.
 
 Servieren mit frischen Koriander-Blättern und Granatapfelkernen, Reis.
 

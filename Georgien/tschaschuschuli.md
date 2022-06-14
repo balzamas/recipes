@@ -18,7 +18,9 @@ Portionen: 4 Personen
 
 ### Anleitung
 
-Fleisch, Knoblauch und Zwiebeln in Butter anbraten, 300ml Wasser dazu geben, weiter braten bei mittlerer Temperatur.
+Fleisch, Knoblauch und Zwiebeln in Butter anbraten, 300ml Wasser dazu geben.
+
+Weiter braten bei mittlerer Temperatur.
 
 Wenn Flüssigkeit gut gefärbt ist Tomatenpast, Tomaten, Weisswein dazu geben. 
 

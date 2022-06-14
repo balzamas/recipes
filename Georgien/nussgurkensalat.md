@@ -13,7 +13,9 @@ Zutaten
 
 Anleitungen
 
-Gemüse würfeln, Zwiebel in Halbringe schneiden, Koriander und Peterli fein schneiden, alles in flaches Gefäss geben (z.B. Gratin-Form)
+Gemüse würfeln, Zwiebel in Halbringe schneiden, Koriander und Peterli fein schneiden.
+
+Alles in flaches Gefäss geben (z.B. Gratin-Form)
 
 Gehackte Walnüsse, Gewürze, Salz und Essig in Töpfchen durchmischen und über das Gemüse geben.
 

@@ -27,7 +27,9 @@ Arbeitszeit 1 Stunde
 
 Geflügel schnetzeln und ohne Öl bei niederiger Temperatur andünsten
 
-Temperatur erhöhen und ein bisschen Wasser hinzugeben. Der entstehende Saft abgiessen in ein Töpfchen. Leicht goldbraun anbraten (ca. 10 - 15 min).
+Temperatur erhöhen und ein bisschen Wasser hinzugeben. 
+
+Der entstehende Saft abgiessen in ein Töpfchen. Leicht goldbraun anbraten (ca. 10 - 15 min).
 
 Zwiebeln in Halbringe schneiden und im Butter anbraten (goldgelb). Mit Flüssigkeit aus Hühnertopf ablöschen.
 

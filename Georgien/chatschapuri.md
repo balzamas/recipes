@@ -64,4 +64,6 @@ Wenn sie sich ein bisschen aufblähen dann sind sie gut.
 
 ### Rezept-Anmerkungen
 
-Die Chatschapuris können in der Pfanne angebraten und dann im Kühlschrank aufbewahrt werden. Vor dem Essen nochmals in den Backofen legen oder auf den Grill. 
+Die Chatschapuris können in der Pfanne angebraten und dann im Kühlschrank aufbewahrt werden. 
+
+Vor dem Essen nochmals in den Backofen legen oder auf den Grill. 
