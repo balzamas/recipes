@@ -1,6 +1,6 @@
 ## Gijma Changal
 
-![img.png](images/gijma.png)
+![img.png](images/gijma/gijma.png)
 
 Nudel mit Fleisch - Zwiebel und Knoblauch à gogo
 

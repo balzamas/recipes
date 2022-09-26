@@ -36,7 +36,7 @@ Auberginen in Sauce geben, Auberginen ein bisschen zerteilen.
 
 Mit Reis oder Naan servieren!
 
-![img.png](images/bademjan.png)
+![img.png](images/choreschtbademjan/bademjan.png)
 
 
 

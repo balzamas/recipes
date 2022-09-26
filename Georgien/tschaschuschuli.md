@@ -1,6 +1,6 @@
 ## Tschaschuschuli (Kalb)
 
-![img.png](images/tschaschuschuli.png)
+![img.png](images/tschaschuschuli/tschaschuschuli.png)
 
 Portionen: 4 Personen
 
