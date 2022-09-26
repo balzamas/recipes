@@ -52,5 +52,5 @@ Der Teig wirkt am Anfang ziemlich trocken. Gebt aber nicht zu leichtfertig Wasse
 <img src="images/chinkali/kochen.jpg" alt="Teigtaschen während des Kochens" style="width:300px">
 
 ### Credits 🫶
-Bilder teils von @balzamas geklaut
-Rezept von @balzamas
+Bilder teils von [@balzamas](@balzamas) geklaut
+Rezept von [@balzamas](@balzamas)
