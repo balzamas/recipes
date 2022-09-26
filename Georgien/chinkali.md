@@ -35,7 +35,7 @@ Der Teig wirkt am Anfang ziemlich trocken. Gebt aber nicht zu leichtfertig Wasse
 #### Teigtaschen
 
 1. Pilze und Zwiebeln fein schneiden \
-<img src="images/chinkali/inhalt2.jpg" alt="Geschnittene Zwiebeln und Pilze" style="width:300px">
+<img src="images/chinkali/inhalt.jpg" alt="Geschnittene Zwiebeln und Pilze" style="width:300px">
 2. Kräuter hacken \
 <img src="images/chinkali/kraeuter.jpg" alt="Gehackte Kräuter" style="width:300px">
 3. Pilze und Zwiebeln anbraten
