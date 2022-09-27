@@ -1,6 +1,6 @@
 ## Chatschapuri
 
-![img.png](images/chatschapuri.png)
+![img.png](images/chatschapuri/chatschapuri.png)
 
 [Twitter](https://twitter.com/BergerWthur/status/1489655439939809282) :thread:
 

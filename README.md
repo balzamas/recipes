@@ -13,6 +13,8 @@ Meine persönliche Rezepte-Sammlung.
 
 [Tschaschuschuli](Georgien/tschaschuschuli.md) :cut_of_meat:
 
+[Chinkali](Georgien/chinkali.md) (:cut_of_meat:)
+
 
 ## Aserbaidschan :azerbaijan:
 
@@ -20,7 +22,7 @@ Meine persönliche Rezepte-Sammlung.
 
 ## Usbekistan :uzbekistan:
 
-[Vegi-Plow](Usebekistan/plow.md)
+[Vegi-Plow](Usbekistan/plow.md)
 
 ## Iran :iran:
 

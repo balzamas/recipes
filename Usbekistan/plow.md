@@ -1,4 +1,4 @@
-## Usbekischer Tofu-Plow
+## Usbekischer Tofu-Plow 🍲
 
 Vorbereitungszeit 10 Minuten	
 
@@ -21,24 +21,32 @@ Portionen: 4 Personen
     Peterli und/oder Koriander
     Pfeffer, Paprika, Kurkuma
 
+<img src="images/plow/zutaten.jpg" alt="Plow Zutaten" style="width:300px">
+
 ### Anleitung
 
-Knoblauch und Zwiebel zerhacken
+1. Knoblauch und Zwiebel zerhacken 
+2. Tofu in Würfel schneiden
+3. Rüebli in Stiftchen schneiden \
+<img src="images/plow/ruebli.jpg" alt="Geschnittene Rüebli" style="width:300px">
 
-Tofu in Würfel schneiden
+4. Öl erhitzen, Zwiebeln, Knoblauch und Tofu anbraten (ca. 5 Minuten) \
+<img src="images/plow/braten.jpg" alt="Tofu, Zwiebeln und Knoblauch während des Bratens" style="width:300px">
 
-Rüebli in Stiftchen schneiden
+5. Tasse Bouillon und die Rüebli hinzufügen, bei milder Hitze 30 Minuten dünsten \
+<img src="images/plow/kochtopf.jpg" alt="Rüebli und Bouillon mit dem Rest im Topf" style="width:300px">
 
-Öl erhitzen, Zwiebeln, Knoblauch und Tofu anbraten (ca. 5 Minuten)
+6. Reis darüber geben, nicht mischen und 5 Minuten mitdünsten \
+<img src="images/plow/reis.jpg" alt="Reis über den restlichen Zutaten" style="width:300px">
 
-Tasse Bouillon und die Rüebli hinzufügen, bei milder Hitze 30 Minuten dünsten
+7. Restliche Bouillon hinzufügen und fertig garen bis der Reis gut ist. 
 
-Reis hinzugeben und 5 Minuten mitdünsten
+8. Würzen mit Pfeffer, Paprika, Kurkuma, Kräuter hinzufügen und abschmecken \
+<img src="images/plow/fertig.jpg" alt="Fertiges Gericht zusammen mit Naan Brot" style="width:300px">
 
-Restliche Bouillon hinzufügen und fertig garen bis der Reis gut ist. 
-
-Würzen mit Pfeffer, Paprika, Kurkuma, Kräuter hinzufügen und abschmecken
 
 ### Rezept-Anmerkungen
 
 Anstatt Tofu kann auch Hammel, Huhn oder Schwein genommen werden.
+
+Dazu passend ein Fladenbrot wie z.B Naan
