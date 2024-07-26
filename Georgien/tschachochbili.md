@@ -33,7 +33,7 @@ Der entstehende Saft abgiessen in ein Töpfchen. Leicht goldbraun anbraten (ca. 
 
 Zwiebeln in Halbringe schneiden und im Butter anbraten (goldgelb). Mit Flüssigkeit aus Hühnertopf ablöschen.
 
-Huhn, Zwiebelm, Tomaten und Lorbeer-Blatt in einen Topf, 30 Minuten abgedeckt schmoren lassen.
+Huhn, Zwiebeln, Tomaten und Lorbeer-Blatt in einen Topf, 30 Minuten abgedeckt schmoren lassen.
 
 Kräuter, Gewürze hinzufügen, nochmals ziehen lassen (5 Min).
 
